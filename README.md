@@ -1,4 +1,5 @@
 ### Hi there 👋
+I'm just a person who love Sonic and modding. 
 
 <!--
 **TheExentist151/TheExentist151** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
